@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @sparr74
+- 👀 I’m interested in ... Loading [...]
+- 🌱 I’m currently learning ... Loading [...]
+- 💞️ I’m looking to collaborate on ... [...]
+- 📫 How to reach me ... [...]
+- 
